@@ -1,1 +1,0 @@
-# jmychalchyk.github.io
